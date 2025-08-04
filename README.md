@@ -4,14 +4,13 @@
 
 ## 👇Minha descrição👇 ##
 
-  ![DollPicture-e587a139-1b08-4b00-ba69-0f8e120ba54c-removebg-preview](https://github.com/pigmeu200/Portifolio/assets/143575527/e5462c33-103d-4dbf-b551-64df767efae2)
+  https://cdn.discordapp.com/attachments/1399773298333843649/1401970786444513471/foto.png?ex=6892368a&is=6890e50a&hm=31d21c70cba9bf12f81a6037cb82ec6b8c8989b32e12a2cd1966f5d8899b2780& (https://portif-lio-plum.vercel.app/#home)
 
-👨‍💻 Meu nome é Ryan conhecido como Xyear tenho 15 anos estou disponivel para freelancer e disposto a pegar mais experiência na área 
+👨‍💻 Meu nome é Ryan conhecido como Vicente tenho 17 anos estou disponivel para freelancer e estágios disposto a pegar mais experiência na área 
 
 ## ***contatos*** ##
 
-**📱 Celular: ***+55 (21) 96984-4844 <br>***
-💻 Discord: ***https://discord.gg/wH6f928Tga <br>***
-📩 E-mail:** ***xyeardev@gmail.com <br>***
+**📱 Celular: ***+55 (21) 989488914 <br>***
+📩 E-mail:** ***desenvolvedorvicente@gmail.com <br>***
 
 
